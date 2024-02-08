@@ -10,7 +10,7 @@
 
 Human beings, to adapt to the people around them and their surrounding environment, sometimes have to suppress their own emotions/behaviors, consciously or unconsciously.
 These emotions/behaviors are not always visible, but they are always there. It's fair to say that we all wear different kinds of masks in different situations, to some extent.
-Under pressure, these masks start to crack, and even shatter, gradually revealing one's hidden faces, nature and characters. That is why Table Tennis, as a Sport of constant stress, can be used to judge the character of a person.
+Under pressure, these masks start to crack, and even shatter, gradually revealing one's hidden faces, nature and characters. That is why Table Tennis, as a Sport of constant stress, can be used to evaluate the character of a person. I do not judge a person's character only based on how they play, it's a combination of intuition and many other factors too. 
 
 I have witnessed cool, calm, collected, confident people turned into angry, spoiled, broken, insecure crybabies in just a split of a few seconds. It's spectacular xD (I saw a part of me in that picture too).
 I have been playing competitive Sports most of my life, starting with Football (at least 5 years), then Basketball (more than 10 years) and currently Table Tennis (totally 5 years).
@@ -38,7 +38,7 @@ There is a line between being confident and over-confident/arrogant. One should 
   
   
 
-## The DOs and DON'Ts in competitive Table tennis
+## The DOs and DON'Ts in Table tennis
 
 ### DOs
 
