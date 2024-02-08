@@ -66,6 +66,9 @@ There is a line between being confident and over-confident/arrogant. One should 
 
 Competitive Table Tennis is fun, challenging, rewarding, and at the same time can be brutal, toxic, and demoralized. However, at the end of the day, no matter if I win or lose, I always shake the hand of my opponents and I smile (to them and to myself too; not all the time though, especially when I lose). Having fun, getting better, while making some good friends/frenemies. That is my way with Sports in general and Table Tennis in specifc.
 
-[![Watch the video](https://img.youtube.com/vi/QAJRIpf74qs/default.jpg)](https://youtu.be/QAJRIpf74qs)
+P.S. These are some videos of the mentalities of Kobe Bryant (Basketball Legend) and Bobby Fischer (Chess Grandmaster).
+Well, I feel Kobe, but Bobby is a little bit...too much :|
 
-[![Watch the video](https://img.youtube.com/vi/BLD1_1kcz3s/default.jpg)](https://youtu.be/BLD1_1kcz3s)
+> [![Watch the video](https://img.youtube.com/vi/QAJRIpf74qs/default.jpg)](https://youtu.be/QAJRIpf74qs)
+> 
+> [![Watch the video](https://img.youtube.com/vi/BLD1_1kcz3s/default.jpg)](https://youtu.be/BLD1_1kcz3s)
