@@ -5,7 +5,7 @@
 - This article contains some dark/brutal knowledge/experiences, that are ONLY meant to be used in the context of competitive Sports in general, and Table Tennis in particular. I do not encourage anyone to use them outside that context.
 - Competitive" in this context refers to the Psychology/Mentality aspects of competitive Table Tennis, and not the physical aspect of it. You don't need to be a member of a Table Tennis club or play in a league to be "competitive". Whenever you play, no matter against whom, you can decide to be "competitive" or not.
 - I am not an expert in Table Tennis, I am not a member of a club, and I play Table Tennis as a hobby. This is based on my own subjective experiences, which can be wrong. Use it at your own risk. Constructive criticism is always welcomed.
-- 
+
 ## Table tennis reflexes human nature/characters
 
 Human beings, to adapt to the people around them and their surrounding environment, sometimes have to suppress their own emotions/behaviors, consciously or unconsciously.
