@@ -62,4 +62,4 @@ There is a line between being confident and over-confident/arrogant. One should 
 
 ## Conclusion
 
-Competitive Table Tennis is fun, challenging, rewarding, and at the same time can be brutal, toxic, and demoralized. However, at the end of the day, no matter if I win or lose, I always shake the hand of my opponents and I smile (to them and to myself too; not all the time though, especially when I lose). Having fun, getting better, while making some good friends/frenemies. That is my way with this Table Tennis.
+Competitive Table Tennis is fun, challenging, rewarding, and at the same time can be brutal, toxic, and demoralized. However, at the end of the day, no matter if I win or lose, I always shake the hand of my opponents and I smile (to them and to myself too; not all the time though, especially when I lose). Having fun, getting better, while making some good friends/frenemies. That is my way with Sports in general and Table Tennis in specifc.
