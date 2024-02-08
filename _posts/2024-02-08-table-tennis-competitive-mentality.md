@@ -22,7 +22,7 @@ Challenge against/See through myself and others, both mentally and physically, i
 
 Over 10 years ago, I read an article about a journalist who went around the world interviewing/studying the top athletes in different sports, and he found out that they all have one thing in common: they are all extremely competitive. This is their common secret to win: "If you want to win/to be the best, you have to put yourself above your opponents". I didnt think about it much at that time (I didn't even read the whole article).
 
-I resumed playing Table Tennis three years ago, and this time I wanted to level up the game; winning was all I thought of. Thus, I recalled that article, and I asked myself: "Putting yourself above a weaker opponent is easy. Against someone at the same level, can do. But what about (much) stronger opponents? How can you win against someone who is (much) better/has more experiences than you?"
+I resumed playing Table Tennis 3 years ago, and this time I wanted to level up the game; winning was all I thought of. Thus, I recalled that article, and I asked myself: "Putting yourself above a weaker opponent is easy. Against someone at the same level, can do. But what about (much) stronger opponents? How can you win against someone who is (much) better/has more experiences than you?"
 
 I came up with a strategy/mindset, tested it, and it worked out for me (not all the time). In competitive games, I objectify my opponents (no matter if they are my friends or strangers). I will ignore their existence. I will focus on their hands and body movements (facial expression too, but not often). "What do I need to do to win this game? You are not the almighty player; you are a rock, a tool, and I will step over/on you, then come out as the winner. I look toward your position, but I do not look at you. I don't play against you; I play against myself. I am the biggest opponent I need to beat, and I'm not scared of myself". This process of thinking eliminates the human factor our of my opponents; it helps me totally focus on my game; it removes anxiety, nervousness, and self-doubt. A rock doesn't make you nervous, does it? (unless it's very big and it's over your head)
 
@@ -33,8 +33,8 @@ Anyway, if you ever felt uncomfortable playing against me, don't take it persona
 
 ## The rewards of being competitive in Table Tennis
 
-Being competitive motivates/reminds me to keep getting better, and the game is more fun that way. There are games in which I feel like I am in total control, on both sides of the table. I know what I can/cannot do, what my opponent can/cannot do, what they are thinking, what their current state of mind is, and what I need to do to win. There are so many things in life I cannot control, but in Table Tennis, I know I can (not all the time). It is a very empowering feeling; it makes me feel more confident/proud. Furthermore, I don't keep that confidence/pride just at Table Tennis, instead, I use them as the ground for other aspects of life too. It's like a snowball effect; once I know how/invest enough time to get it to move, it keeps rolling and it's getting bigger.
-There is a line between being confident and over-confident/arrogant. One should define/draw where that line is by themselves while keeping this in mind: nobody wants to associate with an annoying prick (unless they are the pricks themselves)
+Being competitive motivates/reminds me to keep getting better, and the game is more fun that way. There are games in which I feel like I am in total control, on both sides of the table. I know what I can/cannot do, what my opponent can/cannot do, what they are thinking, what their current state of mind is, and what I need to do to win. There are so many things in life I cannot control, but in Table Tennis, I know I can (not all the time). It is a very empowering feeling; it makes me feel more confident/proud. Furthermore, I don't keep that confidence/pride just at Table Tennis, instead, I use them as the foundation for other aspects of life too. It's like a snowball effect; once I know how/invest enough time to get it to move, it keeps rolling and it's getting bigger.
+There is a line between being confident and over-confident/arrogant. One should define/draw where that line is by themselves while keeping this in mind: nobody wants to associate with an annoying prick.
   
   
 
@@ -44,9 +44,11 @@ There is a line between being confident and over-confident/arrogant. One should 
 
 - Do read some books/articles about psychology in Sports. Everyone will get better at the physical trainings, sooner or later. However, only a few has the mindset/mentality of a winner/fierce competitor. The first step to win is to believe in winning. In this context, "fake it until you make it" does make sense.
 
-- Do spend a lot of time on the fundamental moves instead of the "fancy" ones. The fancy moves are rarely used in the game; the fundamentals decide the game. The difference between a pro and an amateur is that the pro does the fundamental moves much more and much better. From my experience/observation (I'm not a pro), in the long run, the ones who do the fundamentals right from the start can maximize their potential and go very far, while the ones who do/invent "their own moves" instead of the fundamentals will just stuck midway and will not progress much. Why are the movements of the pros "kind of similar" to each other? Because there were countless people who experimented with various moves, for a long time; then they came up with the thing called "fundamentals". Don't reinvent the wheels, unless you are a genius. Did Ma Long reinvent the wheels?
+- Do spend a lot of time on the fundamental moves instead of the "fancy" ones. The fancy moves are rarely used in the game; the fundamentals decide the game. The difference between a pro and an amateur is that the pro does the fundamental moves much more and much better. From my experience/observation (I'm not a pro), in the long run, the ones who do the fundamentals right from the start can maximize their potential and go very far, while the ones who do/invent "their own moves" instead of the fundamentals will just stuck midway and will not progress much. Why are the movements of the pros "kind of similar" to each other? Because there were countless people who experimented with various moves, for a long time; then they came up with the thing called "fundamentals". Don't reinvent the wheels, unless you are a genius. Does Ma Long reinvent the wheels?
 
-- Do keep the negative emotions from Table Tennis stay in the Table Tennis zone. This is a Sports, a Game, not life. 
+- Be humble with confidence, and be confident with humbleness.
+
+- Do keep the negative emotions from Table Tennis stay just in the Table Tennis zone. This is a Sports, a Game, not life. 
   
 - Do play casual if you don't like being competitive or playing competitive is too much for you. There is nothing wrong with that. You will gradually get better, it just takes longer time.
 
@@ -63,3 +65,7 @@ There is a line between being confident and over-confident/arrogant. One should 
 ## Conclusion
 
 Competitive Table Tennis is fun, challenging, rewarding, and at the same time can be brutal, toxic, and demoralized. However, at the end of the day, no matter if I win or lose, I always shake the hand of my opponents and I smile (to them and to myself too; not all the time though, especially when I lose). Having fun, getting better, while making some good friends/frenemies. That is my way with Sports in general and Table Tennis in specifc.
+
+[![Watch the video](https://img.youtube.com/vi/QAJRIpf74qs/default.jpg)](https://youtu.be/QAJRIpf74qs)
+
+[![Watch the video](https://img.youtube.com/vi/BLD1_1kcz3s/default.jpg)](https://youtu.be/BLD1_1kcz3s)
