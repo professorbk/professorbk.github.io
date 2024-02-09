@@ -52,7 +52,7 @@ There is a line between being confident and over-confident/arrogant. One should 
   
 - Do play casual if you don't like being competitive or playing competitive is too much for you. There is nothing wrong with that. You will gradually get better, it just takes longer time.
 
-- Do trasktalk with your friends while playing. It's fun, it adds some hot sauce to the game, and it makes the game more competitive. The game tastes much better that way ;)
+- Do trashtalk with your friends while playing. It's fun, it adds some hot sauce to the game, and it makes the game more competitive. The game tastes much better that way ;)
   
 
 ### DON'Ts
@@ -67,7 +67,7 @@ There is a line between being confident and over-confident/arrogant. One should 
 Competitive Table Tennis is fun, challenging, rewarding, and at the same time can be brutal, toxic, and demoralized. However, at the end of the day, no matter if I win or lose, I always shake the hand of my opponents and I smile (to them and to myself too; not all the time though, especially when I lose). Having fun, getting better, while making some good friends/frenemies. That is my way with Sports in general and Table Tennis in specifc.
 
 P.S. These are some videos of the mentalities of Kobe Bryant (Basketball Legend) and Bobby Fischer (Chess Grandmaster).
-Well, I feel Kobe, but Bobby is a little bit...too much :|
+Well, I feel Kobe, but Bobby is a little bit...too much (:
 
 > [![Watch the video](https://img.youtube.com/vi/QAJRIpf74qs/default.jpg)](https://youtu.be/QAJRIpf74qs)
 > 
