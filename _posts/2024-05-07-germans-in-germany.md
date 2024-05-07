@@ -83,7 +83,8 @@ And when the answer came to my mind, I told her, unconsciously: "Ahhhh, i got it
   
 She looked surprised and confused.  
   
-Every time I submit my passport photo to the Auslanderbehörder, I need to check if my photo is eligible by comparing it with a "sample photo", which shows the face of a woman (in her 30s or 40s I guess). To me, her face is "very German" and I find it pretty.  
+Every time I submit my passport photo to the Auslanderbehörder, I need to check if my photo is eligible by comparing it with a "sample photo", which shows the face of a woman (in her 30s or 40s I guess). To me, her face is "very German" and I find it pretty.
+
 I subtly complimented the girl for having a pretty face, then we never talked again.  
   
 Es ist mir unfassbar.  
@@ -102,7 +103,8 @@ I asked a German friend: "It's Sunday, what are you gonna do this afternoon?"
   
 It seems to me, that she thinks a little too far towards the future.  
   
-I check if my bicycle works the moment I put my butts on the saddles, and I do not think about the maintenance cost at all. I care if my bicycle can take me from point A to point B (hopefully in one piece), when I need to use it.  
+I check if my bicycle works the moment I put my butts on the saddles, and I do not think about the maintenance cost at all. I care if my bicycle can take me from point A to point B (hopefully in one piece), when I need to use it. 
+
 Anyway, I still think the people here are overpaying for bicycles.  
   
 "How can they spend 500€ , 1000€, or even more on a bicycle? It is just a bicycle, 200€ is the maximum I am willing to spend for it."  
